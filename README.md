@@ -18,5 +18,5 @@ I'm a passionate *2nd Yr Student* learning at *Shri Ramdeobaba College of Engine
 ## Get in Touch 📬
 
 - *Contact Details* (+91 9516371467)
-- *LinkedIn* (your_linkedin_profile_link)
+- *LinkedIn* (https://www.linkedin.com/in/siddhi-gangan-977052280)
 - *Email* (siddhigangan1712@gmail.com)
